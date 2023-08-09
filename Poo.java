@@ -1,1 +1,1 @@
-POO não é um bicho de sete cabeças
+POO é super cool
